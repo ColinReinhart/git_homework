@@ -5,3 +5,5 @@
 2. Calendar practice. I don't have much to put into my calendar right now, but that doesn't mean I shouldn't practice.
 
 Shoutout: Sarah in Mod 0 was Driving in our breakout and I goofed up a couple times Navigating. She was patient, and helped me understand where and why I goofed up. Thanks Sarah!
+
+Adding more thoughts to this file
